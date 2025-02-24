@@ -1,1 +1,0 @@
-# Luis-David-Garcia.github.io
